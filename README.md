@@ -1,0 +1,2 @@
+cognizant
+only for assignments 
